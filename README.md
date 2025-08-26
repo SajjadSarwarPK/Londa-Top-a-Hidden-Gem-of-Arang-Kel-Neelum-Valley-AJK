@@ -54,3 +54,4 @@ For information on similar treks and tours, please contact:
 - **Phone:** `+92-355-7055570`
 - **Social Media:** `@TurFirAdventures`
 - **Blog:** `www.TurFirAdventures.blogspot.com`
+- **Blog:** `www.turfir.com`
