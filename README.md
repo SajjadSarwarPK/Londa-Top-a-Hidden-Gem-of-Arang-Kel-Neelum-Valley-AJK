@@ -55,3 +55,4 @@ For information on similar treks and tours, please contact:
 - **Social Media:** `@TurFirAdventures`
 - **Blog:** `www.TurFirAdventures.blogspot.com`
 - **Blog:** `www.turfir.com`
+- **YouTube Channel:** <a href="https://www.youtube.com/@TurFirAdventures">https://www.youtube.com/@TurFirAdventures</a>
